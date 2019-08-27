@@ -1,1 +1,0 @@
-# thakurdemo.github.io
